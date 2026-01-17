@@ -1743,7 +1743,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">nrtoto</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">nusa88</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">maxbet108</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">binar4d</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">jaminjp</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">ayubet</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">qqnusa21</a>
@@ -1901,7 +1900,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">indoboss6d</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">goaloo188</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">fosil77</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">foxybet77</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">sateslot</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">gb77</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">dtg88</a>
