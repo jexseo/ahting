@@ -857,7 +857,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">tirto88</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">medusa96</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">jos777</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">petir88</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">bp77</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">jktjkt38</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">ramaslot</a>
