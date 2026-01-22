@@ -388,7 +388,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">zonatoto</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">toto39</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">iptogel</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">yabos88</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">wukong98</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">toto282</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">gacor02</a>
@@ -986,7 +985,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">magnum777</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">58win</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">goto777</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">makelar33</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">sultanplay</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">vartoto</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">megaforwin</a>
@@ -1105,7 +1103,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">wolestoto</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">joss55</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">dewa688</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">gatotkaca89</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">slot18</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">jagobet99</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">indojaya168</a>
