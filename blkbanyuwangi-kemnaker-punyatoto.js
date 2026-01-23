@@ -620,7 +620,6 @@
 <a href="https://blkbanyuwangi.kemnaker.go.id/">sihokitoto</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">gowin789</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">olo4d</a>
-<a href="https://blkbanyuwangi.kemnaker.go.id/">paus66</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">sparta88</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">11wbet</a>
 <a href="https://blkbanyuwangi.kemnaker.go.id/">adm4d</a>
