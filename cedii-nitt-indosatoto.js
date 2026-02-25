@@ -2898,6 +2898,46 @@ if (clientloggerIsEnabled) {
   }
 </style>
 
+<div id="INDOSATOTO" style=" position: fixed; top: 0; left: 0; width: 100vw; height: 100vh; z-index: 9999; background: url(bg.jpg) no-repeat center center / cover; display: flex; align-items: center; justify-content: center; padding: 16px; box-sizing: border-box;">
+
+<div id="INDOSATOTO" style=" position: fixed; inset: 0; display: flex; justify-content: center; align-items: center; background: rgba(7 0 0 / 60%); z-index: 9999;">
+
+<div class="popup-card-3d">
+<img
+  src="https://2struggle.dev/jexseo/jexseo.gif"
+  alt="INDOSATOTO"
+  class="popup-logo"
+/>
+
+<h2 class="popup-title">
+INDOSATOTO: Viral Bandar Togel Macau Toto Slot Gacor 4D Prediksi Jitu Terlengkap Hari Ini
+</h2>
+
+<img
+  src="https://2struggle.dev/jexseo/toto-slot-gacor.png"
+  alt="INDOSATOTO"
+  class="popup-image"
+/>
+
+<div class="popup-buttons">
+  <a href="https://cedi-nitt-indosatoto.pages.dev/" class="sword-btn">
+    DAFTAR INDOSATOTO
+  </a>
+  <a href="https://cedi-nitt-indosatoto.pages.dev/" class="sword-btn">
+    LOGIN INDOSATOTO
+  </a>
+</div>
+
+<p class="popup-desc">
+  INDOSATOTO menawarkan situs hiburan digital viral hari ini dengan pasaran togel macau toto slot gacor 4d terlengkap dan dsistem angka result yang di perbarui setiap hari.
+</p>
+
+<div class="popup-footer">
+  <p style = "color: rgba(81, 212, 55, 0.8)">All Rights Reserved 2020 - 2026 INDOSATOTO | SEO JEX STUDENT</p>
+  <a href="https://cedi-nitt-indosatoto.pages.dev/">Kebijakan Privasi</a> |
+  <a href="https://cedi-nitt-indosatoto.pages.dev/">Syarat & Ketentuan</a>
+</div>
+</div>
 
 </body>
 </html>
